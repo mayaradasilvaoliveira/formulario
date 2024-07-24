@@ -4,4 +4,4 @@
 - *IFC - Campus Araquari*
 
 ## Subtitulo
-"Um pão para quem tem fome"
+"Não faça bullying, faça amigos- Gabriela 2022 "
