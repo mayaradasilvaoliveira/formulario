@@ -4,4 +4,4 @@
 - *IFC - Campus Araquari*
 
 ## Subtitulo
-"Aqui vai uma citação"
+"Um pão para quem tem fome"
